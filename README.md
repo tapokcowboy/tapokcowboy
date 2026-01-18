@@ -1,11 +1,5 @@
-## ✧:; 𝘾𝙤𝙢𝙚 𝙝𝙚𝙧𝙚❕𝙄 𝙗𝙞𝙩𝙚 ˚.
+✧:; 𝘾𝙤𝙢𝙚 𝙝𝙚𝙧𝙚❕𝙄 𝙗𝙞𝙩𝙚 ˚.
 (魤   ݃ 𝒆𝒘, 𝒅𝒐𝒏'𝒕 𝒕𝒐𝒖𝒄𝒉 𝒎𝒆!)
-
-<!--
-**tapokcowboy/tapokcowboy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
 -˚❌я тупой идиот (>_<)
 ˚ istp 
 𝓘𝓯 𝔂𝓸𝓾𝓻 𝓬𝓸𝓶𝓶𝓾𝓷𝓲𝓬𝓪𝓽𝓲𝓸𝓷 𝓲𝓼 𝓽𝓸𝓸 𝓻𝓾𝓭𝓮, 𝓭𝓸𝓷'𝓽 𝓮𝓿𝓮𝓷 𝓬𝓸𝓶𝓮 𝓷𝓮𝓪𝓻 𝓶𝓮, 𝓵𝓸𝓼𝓮𝓻! 🫵🫵
